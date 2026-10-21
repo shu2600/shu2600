@@ -10,6 +10,6 @@ Retro Gaming Builds, Game Mods And Free Tools For PC And Steam Deck. Everything 
 | [Shu's Steam Deck CRT Build](https://github.com/shu2600/shus-steam-deck-crt-build) | Sends Your LaunchBox Library To EmuDeck With The Same Looks |
 | [Shu's DLSS 5 Switch](https://github.com/shu2600/shus-dlss5-switch) | Turns DLSS 5 On And Off In Your Own Games, Clean And Reversible |
 
-**Like What I Make?** [Support Me On Patreon](https://www.patreon.com/cw/Shu2600)
+**Like What I Make?** [Support Me On Patreon](https://www.patreon.com/cw/Shu2600) · [Buy Me a Coffee](https://buymeacoffee.com/Shu2600)
 
-[shuhq.com](https://shuhq.com) &nbsp;·&nbsp; [X](https://x.com/ShuHQcom) &nbsp;·&nbsp; [YouTube](https://www.youtube.com/@shudoggy666) &nbsp;·&nbsp; [Discord](https://discord.gg/8ffsAsjH7q) &nbsp;·&nbsp; [Patreon](https://www.patreon.com/cw/Shu2600)
+[shuhq.com](https://shuhq.com) &nbsp;·&nbsp; [X](https://x.com/ShuHQcom) &nbsp;·&nbsp; [YouTube](https://www.youtube.com/@shudoggy666) &nbsp;·&nbsp; [Discord](https://discord.gg/8ffsAsjH7q) &nbsp;·&nbsp; [Patreon](https://www.patreon.com/cw/Shu2600) &nbsp;·&nbsp; [Buy Me a Coffee](https://buymeacoffee.com/Shu2600)
