@@ -15,4 +15,4 @@ I'm an old school web developer and coder and I love AI. The people crying about
 
 **Like what I make?** [Support me on Patreon](https://www.patreon.com/cw/Shu2600) · [Buy me a coffee](https://buymeacoffee.com/Shu2600)
 
-[shuhq.com](https://shuhq.com) &nbsp;·&nbsp; [X](https://x.com/ShuHQcom) &nbsp;·&nbsp; [YouTube](https://www.youtube.com/@shudoggy666) &nbsp;·&nbsp; [Discord](https://discord.gg/8ffsAsjH7q) &nbsp;·&nbsp; [Patreon](https://www.patreon.com/cw/Shu2600) &nbsp;·&nbsp; [Buy me a coffee](https://buymeacoffee.com/Shu2600)
+[shuhq.com](https://shuhq.com) &nbsp;·&nbsp; [X](https://x.com/ShuHQcom) &nbsp;·&nbsp; [Reddit](https://www.reddit.com/user/Shudoggy666) &nbsp;·&nbsp; [YouTube](https://www.youtube.com/@shudoggy666) &nbsp;·&nbsp; [Discord](https://discord.gg/8ffsAsjH7q) &nbsp;·&nbsp; [Patreon](https://www.patreon.com/cw/Shu2600) &nbsp;·&nbsp; [Buy me a coffee](https://buymeacoffee.com/Shu2600)
